@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Souvik00007
 - 👀 I’m interested in ...coding,gaming.
 - 🌱 I’m currently learning ...Electrical Engenearing.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... None
 - 📫 How to reach me ... through mail : souvikmondal0702@gmail.com
 
 <!---
